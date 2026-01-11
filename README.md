@@ -49,6 +49,7 @@ evreything
 
 
 
+If you are looking for a crew I have one called the saber piretes if you in first sea this is a crew for noobs to get good.
 
 
 
